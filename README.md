@@ -9,7 +9,7 @@ Muhammed Ceylan Morgul received his BSc degree in Electronics and Communication 
 
 * [GitHub](https://github.com/mcmorgul)
 
-* ["LinkedIn"](https://www.linkedin.com/in/mcmorgul/)
+* [LinkedIn](https://www.linkedin.com/in/mcmorgul/)
 
 * [Google Scholar](https://scholar.google.com/citations?user=tQo0tf8AAAAJ&hl=en)
 
